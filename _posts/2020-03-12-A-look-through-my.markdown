@@ -3,7 +3,7 @@ layout: post
 title:  "A look through the past: a skateboarding part which shaped my teenage years"
 date: 2020-03-12 20:22:26 +0800
 categories: skateboarding random
-description: a skateboarding part which shaped my teenage years
+description: We are the makers of music and we are the dreamers of dreams
 ---
 On my walk home from my meeting today, I saw some skateboarders outside of my office. It makes sense why they would congregate there, the area had a nice bank with a good long run-up next to a wall (good for wallrides) and a shallow set of stairs which could serve as decent nollie pad so that people could film lines. I began reminiscing about my teenage obsession with skateboarding and how the sport essentially shaped my attitude and aesthetics for better or worse. To clarify, I was not one of those 13 year olds that could kickflip down a set of stairs or grind a handrail my own height. I was more of a push around ollie type and I was mediocre at best. But that didn\'t stop me from trying to participate in the culture at large. I was a skate nerd- a connoisseur of the sport and all of its intricacies.
 
